@@ -1,1 +1,1 @@
-# fangthinking.github.io
+# fanthinking.github.io
